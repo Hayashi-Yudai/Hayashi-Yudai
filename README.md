@@ -25,4 +25,4 @@ Here are some ideas to get you started:
 
 ### Get in touch
 
-emaail: yudai0913haya@gmail.com
+email: yudai0913haya@gmail.com
